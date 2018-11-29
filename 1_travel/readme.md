@@ -305,7 +305,7 @@ Fiat 은 후진할때 기어에 어떠한 장치를 위로 올려야한다고 �
 
 
 
-하루밀린 Gay year 일기 - Day2,Day3 
+하루밀린 Gap year 일기 - Day2
 
 
 
